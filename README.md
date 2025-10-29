@@ -3,6 +3,8 @@ fandom
 MHA
 FORSAKEN
 
+I am from Indonesia, I respond slowly sometimes my phone experiences Android failure. 
+
 I'm not always friendly to other players, just to remind you I'm a bit toxic! And don't expect too much from me.
 
  -I'm a bit sensitive, so please respect my boundaries because I've seen a lot of annoying people lately. Oh, and I can't talk about anything other than my fandom, LOL. 
