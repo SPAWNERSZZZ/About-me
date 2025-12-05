@@ -2,6 +2,9 @@
 fandom
 MHA
 FORSAKEN
+
+My English is still a beginner and very bad sorry?, I NEED A TRANSLATOR ;))
+
 I have social anxiety/social awkwardness.DON'T JUDGE ME! I'm a victim of verbal bullying. 
 
 I am from Indonesia, I respond slowly sometimes my phone experiences Android failure. 
