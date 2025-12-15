@@ -30,7 +30,7 @@ I play Forsaken as:
 
 -i often afk/offtab and don't think i don't see the dirty player behavior on your ass
 
--DNI/DNIUF for something like ships or anything, and toxic personal like oc. 
+-DNI/DNIUF for something like ships or anything, and toxic personal like oc, p3d0s. 
 
 some of the following ships: 
 -doublefedora 
@@ -38,6 +38,7 @@ some of the following ships:
 -doubletrouble 
 -thoughtluck 
 -piratedebt
+-oc canon
 
 if you don't like doublefedora please tell me nicely, and go kick your ass to hell if you don't like df, LMFAOAFAFAO ok?. I hate DF haters 
 
