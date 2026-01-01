@@ -40,6 +40,15 @@ some of the following ships:
 -piratedebt
 -oc canon
 
+Ships that I consider invalid [DNIUF/antishipper] 
+-shopdebt :- In my opinion =, it's very disgusting, brother. Eunoia is a robot, and I also think Eunoia is connected to the mafioso business, so I don't like this ship. If you don't like me, please hide me. And it's impossible for a mafioso to marry Eunoia, that's stupid.
+
+-twocoin/secondchance :- In my opinion, this one isn't close either. You know, like two times, they're really distant, not close to Chance, especially Chance's own personality. 
+
+-doubleshades(caporegime x chance):- In my opinion, Chance has nothing to do with Caporegime, yep, and while Chance is a target of the mafia, Caporegime is a subordinate of the mafia, not from fanon, but canon, bruh.
+
+<Note: I might block/avoid some ships, I have allergies to every fandom, even before.>
+
 if you don't like doublefedora please tell me nicely, and go kick your ass to hell if you don't like df, LMFAOAFAFAO ok?. I hate DF haters 
 
 AND STOP COPY MY PONY
