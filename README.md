@@ -38,7 +38,11 @@ some of the following ships:
 -doubletrouble 
 -thoughtluck 
 -piratedebt
--oc canon
+-johnjane
+-bright Shed
+-buildershed
+-azuretime
+-oc canon (spawnlucky oc with chance) 
 
 Ships that I consider invalid [DNIUF/antishipper] 
 -shopdebt :- In my opinion =, it's very disgusting, brother. Eunoia is a robot, and I also think Eunoia is connected to the mafioso business, so I don't like this ship. If you don't like me, please hide me. And it's impossible for a mafioso to marry Eunoia, that's stupid.
