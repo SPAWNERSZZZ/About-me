@@ -24,8 +24,6 @@ I may be working outside of hours and can't serve YOU forever ok?, you have a br
 -WHISPER TO INTERACT (W2i)
 you can whisper interaction ONLY FOR IMPORTANT THINGS NOT WEIRD things ok? idiot,and I don't answer IF YOU JUST WANT MY ATTENTION except, compliments like complimenting my pony, I will respond nicely,and if this can be done while I'm AFK (AWAY FROM KEYBOARD), interacting privately lol, and I don't receive any negative comments/reprimands.
 
--DO NOT INTERACT DNI
-
 -CUDDLE OR HUG (C+H)
 can hug as long as it is not lewd or harassing towards my cosplay (pony) with disgusting dirty. IF THERE IS ONLY "only" in the pony's name, it means only for the object of "ship" not for all,it's right below, if I'm not mistaken you can see it.
 ^
@@ -85,4 +83,3 @@ Ships that I consider invalid [DNIUF/antishipper]
 if you don't like doublefedora please tell me nicely, and go kick your ass to hell if you don't like df, LMFAOAFAFAO ok?. I hate DF haters 
 
 AND STOP COPY MY PONY
-
