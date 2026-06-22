@@ -16,7 +16,7 @@ country of origin [Indonesia]
 -[to remember ONCE AGAIN I'm a person who likes silence ok?,if YOU take advantage of the SITUATION when I am without MY FRIENDS just TO make ME ANGRY,Wow, dude, that's not cool at all in my eyes, okay? By the way YOU seek ATTENTION TO ME]
 ______
       |
-      |(#"I don't like players [INDONESIA NON-FANDOM] asking for MY REAL IDENTITY, and you think With you asking me everything, snooping around, and wanting to be my girlfriend/boyfriend, you only look at the pixels for my gender identity, huh?,even I'm already nice in calling "me" "you", not in a rude way ok?, so please I'm sick of being a victim of ragebait"))
+  (("I don't like players [INDONESIA NON-FANDOM] asking for MY REAL IDENTITY, and you think With you asking me everything, snooping around, and wanting to be my girlfriend/boyfriend, you only look at the pixels for my gender identity, huh?,even I'm already nice in calling "me" "you", not in a rude way ok?, so please I'm sick of being a victim of ragebait"))
 
 -SEMI AFK (S-AFK)
 I may be working outside of hours and can't serve YOU forever ok?, you have a brain right?, not on your butt ok?. I use this right on MY PONY NAME when I don't want to interact fully.Except if I don't answer, don't force me to interact, I'm uncomfortable.
